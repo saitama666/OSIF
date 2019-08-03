@@ -2,10 +2,10 @@
 # this project will be stopped for some time to come.
 
 ```
-                                          _     _
-                                        o' \.=./ `o
-                                           (o o)          
-                                       ooO--(_)--Ooo
+                                         Saitama666
+                                        
+                                                
+                                    
                                        
                                           O S I F
                             [open source information facebook]
